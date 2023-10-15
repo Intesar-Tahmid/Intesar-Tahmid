@@ -7,7 +7,7 @@
 
 - 💬 Ask me about **Java,Kotlin and Python**
 
-- 📫 How to reach me **intesar3006@gmail.com**
+- 📫 Reach me at **intesar3006@gmail.com**
 
 - ⚡ Fun fact **I can make you laugh within a minute**
 
